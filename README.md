@@ -1,1 +1,0 @@
-# mtamsklogi.github.io
